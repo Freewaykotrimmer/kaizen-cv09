@@ -1,4 +1,4 @@
-#  
+#  Experience kaizen like never before with kaizen updated Script, the #1 Script. Includes auto-farm and unlimited stamina for unbeatable performance.
 
 
 
